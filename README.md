@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BON1BON1
+- 👋 Hi, I’m lamees alosime
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning what i want ^^
 - 💞️ I’m looking to collaborate on any program language.
